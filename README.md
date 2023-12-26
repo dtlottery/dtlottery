@@ -13,4 +13,4 @@ Requirements: Smartphone with a good internet connection.
 No experience or experienced person, anyone can work.
 
 If you are interested, please enter below 👇🏻👇🏻
-🌐 Website: bit.ly/playervip
+🌐 Website: https://ahc5.com
